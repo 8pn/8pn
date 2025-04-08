@@ -1,4 +1,4 @@
-### 8pn - Chris
+### Rekrik
 
 I do level design and coding.
 
